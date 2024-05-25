@@ -17,7 +17,11 @@
 额外福利
 现在购买还多送68天VIP，我已上车。
 
-参加115生活618年费VIP活动，签到赢现金！快来一起薅羊毛！
-https://v.115.com/618?f=union&share_code=e603c8e1c6007e79c14850af33af3bd5# 
+参加115生活618年费VIP活动，签到赢现金！快来一起薅羊毛！(https://v.115.com/618?f=union&share_code=e603c8e1c6007e79c14850af33af3bd5# )
+
+![一起薅羊毛](https://github.com/kevincai100/115/blob/main/1.jpg?raw=true)
+
+
+
 
 
